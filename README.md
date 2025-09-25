@@ -1,2 +1,1 @@
-# PATENTERO_GAME
-PATENTERO GAME
+That’s an awesome idea! 🎮 Patentero (also called tubigan, harangang-taga, or patintero) is one of the most popular traditional Filipino street games, so making a digital/web-based version would be both fun and culturally meaningful.
